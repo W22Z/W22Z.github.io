@@ -1,1 +1,1 @@
-# W22Z.github.io
+# wz
